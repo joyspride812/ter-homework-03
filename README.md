@@ -33,7 +33,8 @@
 
   Ответ:  
 
-    ![image](https://github.com/user-attachments/assets/9e7b08a8-518b-4701-8c26-403c370dfdd9)  
+  
+![image](https://github.com/user-attachments/assets/9e7b08a8-518b-4701-8c26-403c370dfdd9)  
 
       
 
